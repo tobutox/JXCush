@@ -2,9 +2,6 @@
 
 
 
-
-
-                                                     JUNTOS X EL CAMBIO USHUAIA 
                                                      
 ![Image](JXC2.png)
 
